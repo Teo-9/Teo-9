@@ -2,8 +2,8 @@
 - 👀 I’m interested in pingpang, songs, badminton, cooking and so on
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate with many excellent friends
-- 📫 How to reach me 
-- 😄 Pronouns:
+- 📫 How to reach me: 1434847579@qq.com
+- 😄 Pronouns:Teo
 
 <!---
 Teo-9/Teo-9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
